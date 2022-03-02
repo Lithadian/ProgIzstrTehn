@@ -1,1 +1,1 @@
-# ProgIzstrTehn
+Andrejs Kuznecovs
